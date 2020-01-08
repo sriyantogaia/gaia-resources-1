@@ -13,3 +13,4 @@ Kumpulan draft materi Gaia Labs
 Catatan: ini adalah repositori sementara sebelum nantinya kepemilikan dialihkan ke Gaia.
 
 AaAaA
+sya PERUBAHAN KE DUA
